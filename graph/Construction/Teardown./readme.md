@@ -1,1 +1,2 @@
 - ["What’s Inside a Lithium Battery? ⚡🔥 | Full Teardown & Breakdown!" #teardown#lithiumionbattery](https://youtube.com/shorts/geGDle5mowU)
+- [Inside lithium polymer battery.](https://youtube.com/shorts/mvDQL9pSAew)
